@@ -1,7 +1,10 @@
 - 👋 Hi, I’m @kashuikur Iran-kar-a-p/h-p-tee Ku=ne rei-hei name helper=kashui-kur Okkayne ku=ne ruwe wa 
 - 👀 I’m interested in .opishta all Aynu ytah kutcam-a .dialect iOS/X ap.Predictive text writer itak-o nu-ye-kar kampi-nu-kar 
 - 🌱 I’m currently learning ...Aynu itak Sii-sham-o-itak 1991- ta-ni pa 2025 yay-kat-a kar myself kewtum okere kur somo ne not academic. 
-- 💞️ I’m looking to collaborate on ...or write about Aynu itak itak-i-p kat-u  mondum-i-renka form and language terms communication difficultties 
+- 💞️ I’m looking to collaborate on ...or write about Aynu itak itak-i-p kat-u  mondum-i-renka form and language terms communication difficultties
+
+- I'am also looking into using PDF Ainu  bible permissions granted  I have the original paper book so iphone scan convert to text edit 700 page a lot of work Youversion bible app has digital and we can find words text in Ainu then compare king james and get translation  many are not coversational phrase ,but a lot of usefull grammar constructed phrases use for predictive text writers
+- and it can be coppied does it have copy right !
 - 📫 How to reach me ...you can post a message on here tane github or-ta aynu itak/h an-i pon-no tesh-kar eashkai-re kur utura isho u-ko-o-u-pe-kar-e we can correct. 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...I lived in skandinavia interest in karelian kieles Sapmi giili languages
